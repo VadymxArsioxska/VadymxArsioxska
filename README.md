@@ -1,7 +1,7 @@
 
 # ![a9158b70](https://github.com/VadymxArsioxska/VadymxArsioxska/assets/149905550/9f282ecc-23cb-4847-82d2-622140b8c579) Hi whoever you are ![93a3c10e](https://github.com/VadymxArsioxska/VadymxArsioxska/assets/149905550/8b4e6766-ba80-4813-9985-4d16c1c25cf5)
 
-### Intro ! ![efeb886b](https://github.com/VadymxArsioxska/VadymxArsioxska/assets/149905550/13adaeac-ebd9-40fe-afa5-d7e84f92591b) WIP .
+### Intro ! // THANK U [TOSHi](https://github.com/VampToshikazu) FOR THE PFP ![efeb886b](https://github.com/VadymxArsioxska/VadymxArsioxska/assets/149905550/13adaeac-ebd9-40fe-afa5-d7e84f92591b) .
 
 ![7ca50197](https://github.com/VadymxArsioxska/VadymxArsioxska/assets/149905550/13da5c1d-bbea-4083-85e4-1fcf8a1a084c)
 
