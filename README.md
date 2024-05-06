@@ -76,6 +76,27 @@ KINS , for anyone who cares . ![tumblr_md4z0yRUVD1r52dl9540](https://github.com/
 
 ![KujiSuperFly](https://github.com/VadymxArsioxska/VadymxArsioxska/assets/149905550/5024cf3f-aa7c-450d-8208-60f227872cbf) ( Buy me this ill marry u dude )
 
+***Love mail .*** [![897a416c](https://github.com/VadymxArsioxska/VadymxArsioxska/assets/149905550/e01b1d45-32b6-463c-b128-ac4f22398a64)
+](https://rentry.co/dyqe8xi7) 
+
+# AND UH NOW , BYE BYE , LEAVING YALL WITH SOME STAMPS AND BLINKERZ
+
+
+![tumblr_inline_pgarzokbNj1v11djx_500](https://github.com/VadymxArsioxska/VadymxArsioxska/assets/149905550/bfb3fb9b-2291-45fe-b7e5-f037b3b4295c)![_stamp__anti_pro_shipper_by_iesbeans_delxvt1-fullview](https://github.com/VadymxArsioxska/VadymxArsioxska/assets/149905550/464fc94d-b9ec-4424-b247-95ad46c9e01c)![ddpsjgr-3dcc916d-68b9-431b-8c3d-d6ca2a8ff044](https://github.com/VadymxArsioxska/VadymxArsioxska/assets/149905550/94b58984-6b67-4482-a61f-b714265a2840)![dcez91f-cc6b7900-2c41-4396-b05d-dcb049355b57](https://github.com/VadymxArsioxska/VadymxArsioxska/assets/149905550/aa8fdf3e-521f-4b65-91f2-1c172784fc85)![d78xk67-d05ed5b2-7a3f-44c3-af83-9d3ccf3e380f](https://github.com/VadymxArsioxska/VadymxArsioxska/assets/149905550/a2978ad3-716c-4852-b625-590c2e3c6229)![g6w5nt](https://github.com/VadymxArsioxska/VadymxArsioxska/assets/149905550/95cafafe-953f-43e1-aa31-0bc12defd547)![glow_in_the_dark_by_glittersludge-day6eyf](https://github.com/VadymxArsioxska/VadymxArsioxska/assets/149905550/02ee7be2-5f2d-4e09-ae55-c8c92e12dc74)![92vxim](https://github.com/VadymxArsioxska/VadymxArsioxska/assets/149905550/ac50c84e-2f26-4f58-a454-85b16023e593)![kyubey_stamp_by_death_summoner-d4omq88](https://github.com/VadymxArsioxska/VadymxArsioxska/assets/149905550/13473827-5abb-4883-b3ce-b1c78f4be7a7)
+
+![EaYL4Gw](https://github.com/VadymxArsioxska/VadymxArsioxska/assets/149905550/f962aef2-cf9d-48dd-9bbd-505d0e8685b0)![systemofadown](https://github.com/VadymxArsioxska/VadymxArsioxska/assets/149905550/8ffdae94-7523-4263-8742-96f2e4eb4533)![sQYim2j](https://github.com/VadymxArsioxska/VadymxArsioxska/assets/149905550/d230fef4-559a-4ce8-b899-a5dd1f30299e)![wjyIasU](https://github.com/VadymxArsioxska/VadymxArsioxska/assets/149905550/6365c0c8-af66-411f-9d3d-30e4e18eb3c0)![Pq2mk3d](https://github.com/VadymxArsioxska/VadymxArsioxska/assets/149905550/692c2812-3634-417f-b3de-2f009482dc25)
+
+
+
+
+
+
+
+
+
+
+
+
 
 
 
