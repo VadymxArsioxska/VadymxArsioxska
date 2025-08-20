@@ -7,7 +7,7 @@
 
 
 
-<code style="color : 29FF14">Hola ! Im *Vadim* - he/they </code> But you can call me: 
+<code style="color : 29FF14">Hola ! Im *Vadím* - he/him </code> But you can call me: 
 Vadym, Vadzim, Toyo, Kare, Nama, Joka', Betho, Motz, Mort, Chuu and any nickname that comes up in your mind with 'Vad' !!![7537bcff](https://github.com/VadymxArsioxska/VadymxArsioxska/assets/149905550/1c39fa3a-1c73-493b-bd33-4d4285d27fbd)
 
 ![boyflux](https://files.catbox.moe/lk272i.png)
